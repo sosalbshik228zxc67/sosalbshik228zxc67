@@ -1,6 +1,6 @@
 <p align="center">
   
-![](https://64.media.tumblr.com/a16e96dca9be9a1af06dff9ca3874cff/45cbaff2f585f80d-52/s500x750/d0268b4942669e76020de7f863e5f7384382d400.gifv)
+
 
 ---
 
@@ -22,11 +22,12 @@
 
 <p align="center">
   
-![](https://64.media.tumblr.com/df997882ce9d9860ce94a0145d8b303c/d410d93b2e7a565a-9a/s540x810/e28b9da278d04b05e6979381fba8267eed253f13.gifv)
+
 
 
 ---
 
 #### <p align="center"> тупо ч и леря 
-![](https://64.media.tumblr.com/e5924ba5ee47be1e997c397663075abc/2a69fdfff0229c3f-53/s100x200/fed21e7ce80373a2b76fee2e8e1bdf6f58f44fd1.gifv)
+![](https://64.media.tumblr.com/e5924ba5ee47be1e997c397663075abc/2a69fdfff0229c3f-53/s100x200/fed21e7ce80373a2b76fee2e8e1bdf6f58f44fd1.gifv) <img width="99" height="56" alt="17742520010384404280402408004162" src="https://github.com/user-attachments/assets/d0f41da7-ec8d-43d1-8cb6-3c6149be417a" />
+
 
